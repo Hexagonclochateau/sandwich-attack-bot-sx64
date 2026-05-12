@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top Sniper for sandwich attack bot | pump-detection & blockchain-scanning, the #1 sandwich attack bot. Includes pump-detection and blockchain-scanning
 
 
 
